@@ -1,6 +1,7 @@
 # Read-Me
 
-[Uploading Dhriti Badry.png.opdownload…]()
+<img width="600" height="150" alt="image" src="https://github.com/user-attachments/assets/f9871442-ab91-470f-b96a-91e36833b513" />
+
 
 Dhriti Badry: 
 
